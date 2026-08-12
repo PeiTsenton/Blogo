@@ -145,7 +145,7 @@ jado ya me bhikkhave imesu cadusu ariyasaccesu evaṃ tiparivaṭṭaṃ duvadas
 
 idam avoya Bhagavā, attamaṇā pañcavaggiyā bhikkhuṇo Bhagavantassa bhāsidaṃ ahiṇanduṃ.
 
-世尊這樣說，五比丘感到高興，歡喜世尊所說的。
+世尊這樣說，五位比丘感到高興，歡喜世尊所說的。
 
 imamhiṃ ya vaṇa vejjākaraṇamhiṃ bhaññamāṇamhiṃ, bhaddantassa Koṇḍaññassa virayaṃ vīdamalaṃ dhammacakkhuṃ uppādi:
 
