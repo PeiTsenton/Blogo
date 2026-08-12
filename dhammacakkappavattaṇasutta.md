@@ -249,6 +249,8 @@ tāṇaṃ visodhidaṃ cakkhuṃ Dhammacakkappavattaṇe.
 
 於轉法輪時，他們生起了清淨的法眼。
 
+---
+
 Dhammacakkappavattaṇasuttaṃ niṭṭhidaṃ.
 
 轉法輪經終了。
