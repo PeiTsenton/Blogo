@@ -131,7 +131,7 @@ taṃ ho vaṇ' idaṃ dukkhasamudaye pahīṇan ti pejjāla ... idaṃ dukkha�
 
 jāva hi me bhikkhave imesu cadusu ariyasaccesu yoṇisomaṇasikārado evaṃ tiparivaṭṭaṃ duvadasāgāraṃ ñāṇadassaṇaṃ ṇa uppaṇṇaṃ, ṇeva tāvāhaṃ bhikkhave sadevagamhiṃ logamhiṃ samāragamhiṃ sabrahmagamhiṃ sassamaṇabrāhmaṇamhiṃ sadevamaṇussamhiṃ aṇuttaraṃ sammāsambodhiṃ ahisambuddhemhī di paccaññāsiṃ.
 
-比丘們，因為只要在這四聖諦上，從如理作意之中，像這樣三轉、十二相的知見尚未生起，比丘們，我並不在有諸天、魔羅、梵天、沙門婆羅門以及諸王與民眾的世間宣稱「我已經證悟到了無上正等正覺」。
+比丘們，因爲只要在這四聖諦上，從如理作意之中，像這樣三轉、十二相的知見尚未生起，比丘們，我並不在有諸天、魔羅、梵天、沙門婆羅門以及諸王與民衆的世間宣稱「我已經證悟到了無上正等正覺」。
 
 jado ya me bhikkhave imesu cadusu ariyasaccesu evaṃ tiparivaṭṭaṃ duvadasāgāraṃ ñāṇadassaṇaṃ uppaṇṇaṃ, tadohaṃ bhikkhave sadevagamhiṃ logamhiṃ samāragamhiṃ sabrahmagamhiṃ sassamaṇabrāhmaṇamhiṃ sadevamaṇussamhiṃ aṇuttaraṃ sammāsambodhiṃ ahisambuddhemhī di paccaññāsiṃ.
 
