@@ -135,7 +135,7 @@ jāva hi me bhikkhave imesu cadusu ariyasaccesu yoṇisomaṇasikārado evaṃ t
 
 jado ya me bhikkhave imesu cadusu ariyasaccesu evaṃ tiparivaṭṭaṃ duvadasāgāraṃ ñāṇadassaṇaṃ uppaṇṇaṃ, tadohaṃ bhikkhave sadevagamhiṃ logamhiṃ samāragamhiṃ sabrahmagamhiṃ sassamaṇabrāhmaṇamhiṃ sadevamaṇussamhiṃ aṇuttaraṃ sammāsambodhiṃ ahisambuddhemhī di paccaññāsiṃ.
 
-比丘們，當在這四聖諦上，像這樣三轉、十二相的知見已經生起時，比丘們，我那時才在有諸天、魔羅、梵天、沙門婆羅門以及諸王與民眾的世間宣稱「我已經證悟到了無上正等正覺」。
+比丘們，當在這四聖諦上，像這樣三轉、十二相的知見已經生起時，比丘們，我那時才在有諸天、魔羅、梵天、沙門婆羅門以及諸王與民衆的世間宣稱「我已經證悟到了無上正等正覺」。
 
 ñāṇadassaṇaṃ me uppādi: khīṇā me jādī vusidaṃ brahmacariyaṃ, kadaṃ karaṇīyaṃ, ṇāvarado bhavan ti pajāṇāmi.
 
@@ -205,7 +205,7 @@ Tusidāṇaṃ devāṇaṃ saddaṃ suṇiyā Ṇimmāṇaradiṇā devā sadda
 
 Paraṇimmidavasavattīṇaṃ devāṇaṃ saddaṃ suṇiyā Brahmakāyigā devā saddaṃ aṇussāvesuṃ:
 
-聽到他化自在天諸神的喊聲以後，梵眾天諸神發出喊聲：
+聽到他化自在天諸神的喊聲以後，梵衆天諸神發出喊聲：
 
 edaṃ Bhagavanteṇa Vārāṇasīye Isipadaṇe Magadāye aṇuttaraṃ Dhammacakkaṃ pavattidaṃ tiparivaṭṭaṃ duvadasāgāraṃ, puvve appavattidaṃ samaṇeṇa vā brāhmaṇeṇa vā deveṇa vā māreṇa vā brahmuṇā vā keṇaci vā logamhiṃ, bahujaṇahidāya desidaṃ bahujaṇasuhāya logāṇukampāya atthāya hidāya suhāya devamaṇussāṇan ti.
 
